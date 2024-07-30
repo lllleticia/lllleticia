@@ -8,4 +8,3 @@ Meu nome é Leticia
 
 -Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-![ ](https://tenor.com/pt-BR/view/bug-gif-8825545)
