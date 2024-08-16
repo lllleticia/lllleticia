@@ -8,6 +8,7 @@ Meu nome é Leticia
 
 -Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
+![](https://media1.tenor.com/m/R734rTbXxEsAAAAd/trickmint.gif)
 
 
 
